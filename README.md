@@ -5,4 +5,4 @@ Doğum tarihim 28.05.1996
 2 tane hobim var. 
 Bilgisayar başında verimli zaman geçirmek.
 Sporla uğraşmayı çok seviyorum , en sevdiğim branş futboldur.
-Beni ekibini almak isteyen kiilere her zaman kapım açıktır.
+Beni ekibini almak isteyen kişilere her zaman kapım açıktır.
